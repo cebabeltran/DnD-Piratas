@@ -1,0 +1,4 @@
+![[Magnum.jpeg]]
+Ruperion Magnum es un gnomo de origen desconocido. Es encontrado por los jugadores en la bodega del [[Gremio de la Sal|gremio]], donde estaba enjaulado y a la espera de ser vendido como esclavo. Los jugadores deciden llevarlo en la primera misión (en contra de su voluntad). Durante el recorrido, los jugadores son atacados por un barco fantasma de [[Navío Fantasma|ahogados]], y uno de los esqueletos toma a Magnum y lo imbuye de una llama verde, que lo deja en un estado de trance. A pesar de los intentos de curación de [[Bargo]], sigue inconsciente, con los ojos verdes y susurrando palabras ininteligibles.
+
+#Personajes

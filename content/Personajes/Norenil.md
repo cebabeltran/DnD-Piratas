@@ -1,0 +1,2 @@
+Norenil es un elfo oscuro, mago y mercader ambulante. Es fundador y dueño del [[Mercado Gris#Emporio mágico de Norenil|Emporio Mágico de Norenil]], una tienda de diversos artículos y servicios mágicos. Su especialidad es la tinta mágica, 
+#Personajes 

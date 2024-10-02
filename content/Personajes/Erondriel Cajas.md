@@ -1,0 +1,4 @@
+![[Eron.webp]]
+Erondriel "Eron" Cajas es un contrabandista marino y la cabeza del Gremio de la Sal, una agrupación mercante de bajo perfil que opera en el territorio oeste. Es un semielfo de mediana edad, con un aspecto tosco y algo descuidado, aunque intenta aparentar una buena posición económica con sus vestimentas y joyería. Es un hombre de gran ambición, con una brújula moral cuestionable y una amplia red de contactos. Se le encuentra generalmente en su oficina en la Isla Base, la sede de operaciones del gremio, y no es frecuente que salga a hacer trabajos, pues prefiere delegar labores a sus empleados. [[El Cuervo]] es actualmente uno de sus principales mediadores, pues ofrece buenos encargos de escasa información y alta paga.
+
+#Personajes

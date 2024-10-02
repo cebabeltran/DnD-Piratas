@@ -1,0 +1,3 @@
+*Terrible Tormenta* es el nombre de una espada larga de doble filo que perteneció al pirata mayor [[Fortuna Ancla]]. Su hoja es de una aleación de hierro con lapislázuli, que le da un característico color azul. Después de la caída de los grandes piratas, la espada estuvo perdida durante años, hasta que fue presuntamente encontrada en las costas del [[Baluarte Von Jorn]] y quedó en posesión de [[Julius Von Jorn|Julius]], quien la mantuvo en su colección de tesoros pirata. En los eventos del [[Sesión 4|banquete Von Jorn]], Julius revela que uso la espada para matar a su hijo [[Hansen Von Jorn|Hansen]], y se la entrega a [[Herberos]], quien la posee actualmente.
+
+#Objetos
